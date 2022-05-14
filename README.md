@@ -1,5 +1,5 @@
 - 👋 Hi, I’m @KUDA2045
-- 👀 I’m interested in ... Manchester UNited and Valorant
+- 👀 I’m interested in ... Manchester United and Valorant
 - 🌱 I’m currently learning ... Electrical ENgineering
 - 💞️ I’m looking to collaborate on ... OpenCL
 - 📫 How to reach me ... aldaid889@gmail.com
